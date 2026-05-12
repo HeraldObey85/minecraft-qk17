@@ -1,4 +1,4 @@
-#  
+#  advanced minecraft Scripts is the best minecraft Script, featuring private server access and no cooldown. Safe and powerful for all your needs.
 
 
 
